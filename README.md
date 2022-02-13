@@ -4,4 +4,4 @@
   ###            We are here to make your day more special.
   ###            We provide traditional, Arabic, Indo Arabic mehndi designs.
    ###           Designs can be customized according to your desire.
-    ###          For any queries send us a message at - https://www.facebook.com/minhamehendi
+   ### For any queries send us a message at - https://www.facebook.com/minhamehendi
